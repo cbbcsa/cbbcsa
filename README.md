@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @cbbcsa
-- 👀 I’m interested in games
-- 🌱 I’m currently learning Game development
-- 🏆 I've been nominated for a BAFTA YGD!
+![Picture_1-removebg-preview](https://github.com/user-attachments/assets/0f0eff8f-b05e-4a94-a504-a672b51d716c)
+

@@ -10,6 +10,8 @@ I make some games and work on other projects too
 - qualify for f24 international finals (as a team)
 - own a hackclub sprig
 - be entered for OUCC
+- 3d print cool stuff
+- 
   
 ## and many other thing's that i've fogotten to mention here!
 
